@@ -1,2 +1,2 @@
-NAMA: Muhammad Brahmana Priambudi
+NAMA: Muhammad Brahmana Priambudi  
 NRP: 5025251129
